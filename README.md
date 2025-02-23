@@ -3,7 +3,7 @@
 ✅ **Hızlı ve Güvenilir İşlem**
 ✅ **Kazancınızı Artırın**
 
-🔗 **Web Sitemiz:** **ihalebot.com**
+🔗 **Web Sitemiz:** **https://ihalebot.com**
 
 **Neden UYAP İhale Botu?**
 🔹 **Zamandan Tasarruf Edin – İhaleleri anında takip edin.**
