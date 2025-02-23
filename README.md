@@ -1,14 +1,14 @@
 # Uyap İhale Botu ile kazanmaya şimdi ücretsiz başlayın!
-✅ **Otomatik İhale Takibi**
+✅ **Otomatik Milisaniselik işlemler**
 ✅ **Hızlı ve Güvenilir İşlem**
 ✅ **Kazancınızı Artırın**
 
 🔗 **Web Sitemiz:** **https://ihalebot.com**
 
 **Neden UYAP İhale Botu?**
-🔹 **Zamandan Tasarruf Edin – İhaleleri anında takip edin.**
-🔹 **Otomatik Bildirimler – Kaçırmadan fırsatları yakalayın.**
-🔹 **Kolay Kullanım – Tek tıkla işlem yapın.**
+🔹 **Zamandan Tasarruf Edin – İhaleleri kolay kazanın!**
+🔹 **Full Otomatik şekilde maximum ihale tutarı ve ilave teklif tutarına göre ihale takibi**
+🔹 **Kolay Kullanım – Milisaniseler ile işlem yapın!**
 
 📢 **Şimdi Ücretsiz Deneyin! ihalebot.com**
 
